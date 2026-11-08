@@ -1,1 +1,9 @@
-# general-one
+https://youtube.com/shorts/0_O6puoZzLs?si=E5Bo2neRU-uQ1pUu
+https://youtube.com/shorts/4A2ssKBy53o?si=ufcx0f7_oD2_f36Y
+https://youtube.com/shorts/atoIb0jvr6o?si=-u7gaJWtaTpP55f3
+https://youtube.com/shorts/GOIXrD3NL3o?si=Xedmidl5OTr3NN2A
+https://youtube.com/shorts/rlR_41lY9Dw?si=90Cf0QlXZRJr0N-k
+https://youtube.com/shorts/49WhFIuGbyc?si=HzSY8LYp02oq561F
+https://youtube.com/shorts/6OB1MR3yTxc?si=hH_wEG6W36DPYzkU
+https://youtube.com/shorts/gCMELeUEKG0?si=iCKZpwvZ2tlZklYo
+https://youtube.com/shorts/rKekCrHIDG0?si=uIMkYYJKYYHgUmwL
